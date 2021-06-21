@@ -1,0 +1,11 @@
+Steps for making Eggless Brownies:
+- Preheat the oven to 350 degree Fahrenheit
+- Grease a baking tin with oil and flour
+- Take a bowl and mix flour, cocoa powder and baking soda together
+- Take another bowl and mix refined oil, powdered sugar and curd with a spatula 
+- Now and the dry mixture and stir them together 
+- Add few drops of vanilla extract 
+- Add the chopped walnuts to the batter and stir it
+- Pour batter to the baking tin 
+- Add a few walnuts on top for decoration
+- Bake for 40-45 mins or until a knife inserted into the center comes out clean
